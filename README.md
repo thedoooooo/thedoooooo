@@ -2,7 +2,7 @@
 
 pronouns; he/they!
 
-interests; the goons, frouce, tgc, yumi, mgs, ow2 !!!!!!!!!
+interests; the goons, frouce, tgc, yumi, mgs, ow2, mouthwashing !!!!!!!!!
 
 stupid games i play; overwatch 2 (i freaking hate this game but i still play it LMAO!!!), roblox (sometimes), ponytown 
 
